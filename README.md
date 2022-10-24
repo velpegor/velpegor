@@ -1,8 +1,6 @@
 # WonJun Lee
 
 
-### Interest in
-
 
 <div align=center>
 
